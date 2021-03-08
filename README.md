@@ -1,4 +1,4 @@
-<h1 align="center">Beatriz Alcantara </h1>
+<h1 align="center">Beatriz Alcantara - a cute and nice girl :) </h1>
 
 &rarr; __Formal Education / Degree__ :woman_student:
 * Graduation: Veterinary Medicine - University of São Paulo :sweat_smile: :muscle:
